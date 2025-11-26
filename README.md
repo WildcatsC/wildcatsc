@@ -26,9 +26,7 @@ Reach me on:
 
 - **0x24steven.eth**
 
-Go Data
-Go Computing
-Go Intelligence
+Go Data, Go Computing, Go Intelligence
 
 data dev @AmazonRing Decision Sciences & Agentic Platform
 ex-dev🔭 @https://p12.network/
