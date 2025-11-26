@@ -19,7 +19,7 @@ Go Data, Go Computing, Go Intelligence
 
  - data dev @AmazonRing Decision Sciences & Agentic Platform
  - ex-dev🔭 @https://p12.network/
- - 🌱 Math & Physics @UCLA '22 | MSBA '24 @UCLA Anderson | Dancer
+ - 🌱 Math & Physics @UCLA '22 | MSBA @UCLA Anderson '24 | Dancer
 
 
 Reach me on: 
