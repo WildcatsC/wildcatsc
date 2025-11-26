@@ -26,7 +26,12 @@ Reach me on:
 
 - **0x24steven.eth**
 
-ex dev🔭 @ https://p12.network/
+Go Data
+Go Computing
+Go Intelligence
+
+data dev @AmazonRing Decision Sciences & Agentic Platform
+ex-dev🔭 @https://p12.network/
 
 ### Lets make it launch 🚀
 
